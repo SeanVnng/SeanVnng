@@ -26,5 +26,5 @@
 ---
 
 ### 🧭 Petit plus
-> J'adore explorer, dessiner et manger !
+> J'ai un péché mignon pour les tiramisus 🍰🥄
 
