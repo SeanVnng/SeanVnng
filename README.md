@@ -26,5 +26,5 @@
 ---
 
 ### 🧭 Petit plus
-> Explore, apprends, crée — et sécurise ce que tu bâtis.
+> J'adore explorer, dessiner et manger !
 
